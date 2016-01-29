@@ -8,3 +8,5 @@
 ## IN KA UN KA TUMHARA HAMARA NABI
 ## tum zaat e khuda sai naa juda ho na khuda ho
 ## Allah ko maalom hai kiya janai k kiya ho
+## UN KI MAHAK NAI DIL K GUNCHI KHILA DIYAI HAIN 
+## JIS RAH CHAL DIYAI HAIN KOCHAI BASA DIYAI HAIN 
