@@ -6,3 +6,5 @@
 ## APNAI MOLA KA PIYAARA HAMARA NABI
 ## JAISAI SUB KA KHUDA 01 HAI WASAI HI
 ## IN KA UN KA TUMHARA HAMARA NABI
+## tum zaat e khuda sai naa juda ho na khuda ho
+## Allah ko maalom hai kiya janai k kiya ho
