@@ -13,3 +13,4 @@
 ## ya nabi salam alaika ya rasool salam alaika ya habib salam alaika sulawa tullah alaika 
 ## barhi ummid hai sarkaar qadmo mai bulaingai
 ## karam jub nazar ho gi madinai hum bi jaingai
+## karam jo aap ka ya syedi sarkaar ho jai
