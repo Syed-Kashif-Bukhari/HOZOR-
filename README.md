@@ -14,3 +14,5 @@
 ## barhi ummid hai sarkaar qadmo mai bulaingai
 ## karam jub nazar ho gi madinai hum bi jaingai
 ## karam jo aap ka ya syedi sarkaar ho jai
+## to Sham e Risalat hai
+## Aalam  taira parwana 
