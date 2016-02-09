@@ -10,3 +10,9 @@
 ## Allah ko maalom hai kiya janai k kiya ho
 ## UN KI MAHAK NAI DIL K GUNCHI KHILA DIYAI HAIN 
 ## JIS RAH CHAL DIYAI HAIN KOCHAI BASA DIYAI HAIN 
+## ya nabi salam alaika ya rasool salam alaika ya habib salam alaika sulawa tullah alaika 
+## barhi ummid hai sarkaar qadmo mai bulaingai
+## karam jub nazar ho gi madinai hum bi jaingai
+## karam jo aap ka ya syedi sarkaar ho jai
+## to Sham e Risalat hai
+## Aalam  taira parwana 
