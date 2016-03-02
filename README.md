@@ -16,3 +16,7 @@
 ## karam jo aap ka ya syedi sarkaar ho jai
 ## to Sham e Risalat hai
 ## Aalam  taira parwana 
+_salam_
+*salam*
+**salam**
+**salam`wa`salam**
